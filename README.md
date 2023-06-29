@@ -1,1 +1,1 @@
-# Task for INTERNSHIP POSTITION 
+# Task for internship position
